@@ -1,4 +1,4 @@
-
+Get the ultimate Adobe Illustrator for macOS brush with Adobe Illustrator for macOS updated Brush Pack - non-destructive editing and real-time preview. Featuring non-destructive
 
 
 
